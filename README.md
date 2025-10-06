@@ -1,1 +1,1 @@
-Ty guys for follow me ^_^
+Ty guys for follow me. ^_^
